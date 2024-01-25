@@ -1,0 +1,1 @@
+ambitious, displined, motivated
